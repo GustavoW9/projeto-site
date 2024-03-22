@@ -1,0 +1,1 @@
+cumi cu de curiosojkjkkkkkkkkkkkkkkkkkkkkkkkk
